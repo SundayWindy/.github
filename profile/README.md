@@ -16,7 +16,7 @@ You can find me on:
 
 - [GitHub as @ruicore(you are here)](https://github.com/ruicore)
 - [Twitter as @ruicore](https://twitter.com/super76rui)
-- [LinkedIn as @ruicore](https://www.linkedin.com/in/%E7%9D%BF-%E4%BD%95-068b1a145/)
+- [LinkedIn as @ruicore]([https://www.linkedin.com/in/%E7%9D%BF-%E4%BD%95-068b1a145/](https://www.linkedin.com/in/he-rui-068b1a145/)
 - [Medium as @ruicore](https://medium.com/@hrui835)
 
 
